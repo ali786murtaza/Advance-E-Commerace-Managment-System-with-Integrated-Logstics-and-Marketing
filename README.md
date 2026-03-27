@@ -184,7 +184,8 @@ Unlike traditional platforms like Shopify or WooCommerce, this system focuses on
 ##  Contact
 
 **Ali Murtaza**
-📧 [shazidigital215@gmail.com](mailto:shazidigital215@gmail.com)
+📧 [alimurtazaamjadali040@gmail.com
+(mailto:alimurtazaamjadali040@gmail.com)
 
 ---
 
